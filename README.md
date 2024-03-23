@@ -1,2 +1,2 @@
 # siema
-omfg
+ale ze mnie programista!!!!!!!
